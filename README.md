@@ -1,3 +1,3 @@
 # exemplo-conflito
 
-Eu sou o Arthur, oia lá q absurdo mae
+Eu sou o Alef, amanhã vou produzir
